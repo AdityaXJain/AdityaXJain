@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **Adityajain6366@gmail.com**
 
-- ⚡ Fun fact **I Think I am programmer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
